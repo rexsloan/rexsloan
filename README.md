@@ -15,7 +15,7 @@
 
  
 
-$\text{\color{#D99007}{ discord:  _ rexsplode }}$
+$\text{\color{#D99007}{ discord:  (underscore)rexsplode }}$
 
   <img src="https://i.postimg.cc/c4Z1xmSP/gothicborder.png" width="500" height="55">  
 </div>
