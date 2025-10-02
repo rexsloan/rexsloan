@@ -14,12 +14,8 @@
 
 
  
- $\text{\color{#D99007}{  till / joseph / jo !   }}$
 
-
- $\text{\color{#D99007}{ 19! | any prns okay}}$
-
-$\text{\color{#D99007}{ instagram: joriisan ⠀➤ ⠀ discord:  luv.joseph  ⠀➤ ⠀ airbuds:  luvjoseph }}$
+$\text{\color{#D99007}{ discord:  _rexsplode }}$
 
   <img src="https://i.postimg.cc/c4Z1xmSP/gothicborder.png" width="500" height="55">  
 </div>
